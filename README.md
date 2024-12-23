@@ -9,7 +9,11 @@
  <br/><br/> 
  <br/><br/> 
  
-
+ ### Untitled 286 : 번뇌 가득한 마음이 오류를 일으켜 
+ 
+ <img src="https://github.com/leeseomin/Abstract6/blob/main/art/286.png" width="50%">    
+ 
+ <br/><br/> 
 
 
 
